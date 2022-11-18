@@ -1,0 +1,4 @@
+- 👋 Hi, I’m ASHICK
+- 👀 I’m interested in Editing videos ,coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...instagram _ a s . i c _
